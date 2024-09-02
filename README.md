@@ -7,7 +7,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on:com você
 - 🤔 I’m looking for help with:games
 - 💬 Ask me about:jogos elètronicos
-- 📫 How to reach me:guhmoleta@gmial.com
+- 📫 How to reach me:guhmoleta@gmail.com
 - 😄 Pronouns:ele/ela
 - ⚡ Fun fact:jogar bola
 
